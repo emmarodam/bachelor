@@ -1,3 +1,0 @@
-# bachelor
-# bachelor
-# bachelor
